@@ -1,4 +1,4 @@
-# 
+# Sketch for macOS exclusive Preset: export to SVG & export presets offers the most advanced Sketch for macOS preset, with export to SVG and export presets. Ideal for professional
 
 
 
